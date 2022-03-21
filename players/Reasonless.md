@@ -7,3 +7,5 @@ Ranks:
 Reasonless is one of the Developers of DiamondFire. they still doesn't know why everyone spams the :d_Reasonless: emoji 
 
 Reasonless is also the original creator & maintainer of the popular mod for DiamondFire, [CodeUtilities](https://codeutilities.github.io)
+
+Reasonless bangs cats nightly. Some say his days are numbered, some say his days have already been outnumbered.
